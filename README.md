@@ -5,4 +5,5 @@ im genderfluid + pansexual + asexual 😼 !!
 ୧ ‧₊˚ 🍮 ⋅ ☆˚ ༘ ೀ⋆｡˚do not interact : : mean ppl, sexualizers (ANDDD I MEAN BY THAT like intense sexualizin,, dont do it too much around me), insp/copy😒, racists, homophobics, zoophiles p3dos anything like those dni !!!!!!!!! pee yew
 •|☆✨🌕☆•|hobbies : : exploring, drawing, journaling, collecting all of those funs stuffffffffffffff !!
 ˙ . ꒷ 🍰 . 𖦹˙— DISCLAIMERRRSS RAH : : Im mean to you as a jokeee err often suggestive jokes PLEASE do tell me if your not comfy w it
-˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ MORE INFO IN MY PRONOUN PAGE / STRAWPAGEEE YUHH GO CHECK IT OUTT 𓊆ྀི❤︎𓊇ྀ༉‧₊˚.  im just here to push your temper! ♡⸝⸝![image](https://github.com/user-attachments/assets/82e21658-fe83-4762-9cf6-ca50ed371317) alr byeeuhh !!
+˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ MORE INFO IN MY PRONOUN PAGE / STRAWPAGEEE YUHH GO CHECK IT OUTT 𓊆ྀི❤︎𓊇ྀ༉‧₊˚.  im just here to push your temper! ♡⸝⸝![image](https://github.com/user-attachments/assets/82e21658-fe83-4762-9cf6-ca50ed371317) ![image](https://github.com/user-attachments/assets/e17878c3-2246-42cd-b241-e2c4878e5765)
+
